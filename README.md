@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @codepraj  
+# 👋 Hi, I’m Prajwal Dudhe 👨‍🎓  
 
 - 🎓 Computer Engineering graduate (2024) from Jawaharlal Darda Institute of Engineering and Technology, Yavatmal (Amravati University).  
 - 🎓 Completed a Diploma in Computer Engineering (2018) from Government Polytechnic, Yavatmal.
